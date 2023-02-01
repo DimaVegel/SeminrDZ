@@ -7,13 +7,13 @@
 
 3 вет(Конфликт 5 6 dtnrb  ветки)ка 
 
-4 ве(Конфликт 4 ветки)тка
+4 ве(Конфликт 4 ветки)тefwefweка
+
+fwefwef
+5 ветка
 
 
-5 веткаefwefweffe
-
-
-rtrtrtgiwefwefwe
+rtrtrtefgi
 
 
 
